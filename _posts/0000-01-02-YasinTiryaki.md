@@ -1,1 +1,5 @@
-just happened
+is
+it
+just
+happened
+?
